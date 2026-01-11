@@ -1,5 +1,5 @@
 #  About Me:
-I’m currently working on projects that improve my practical skills in software development.<br><br>I'm looking to collaborate on interesting and impactful tech projects.<br><br>I’m currently exploring real-world industry applications.<br><br>I love turning ideas into working projects and learning new tech every day.<br><br> Reachout me at sharanyats7@gmail.com
+I’m currently working on projects that improve my practical skills in software development.<br><br>I'm looking to collaborate on interesting and impactful tech projects.<br><br>I’m currently exploring real-world industry applications.<br><br>I love turning ideas into working projects and learning new tech every day.<br><br> Reachout to me at sharanyats7@gmail.com
 
 
 ## 🌐 Socials:
